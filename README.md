@@ -1,6 +1,13 @@
 # ioncube-decoder-ioncube-11-and-12
 
 
+
+Please attension : Decode service not avalible but i can learn you how to decode yourself.
+Decode Learn proce is 70 USDT.
+
+
+
+
 Hello all friends,
 
 Ioncude decode service is now avalible ,
